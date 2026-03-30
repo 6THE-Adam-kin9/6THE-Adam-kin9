@@ -31,5 +31,5 @@ I'm not looking for friends, but I might add you if you'll live up to my crazy p
 
 <p align="center">
  <img width="640" height="315" alt="image" src="https://github.com/user-attachments/assets/4e070c92-3df1-4236-8a3a-a3b9b42349f6" />
-<img width="735" height="599" alt="image" src="https://github.com/user-attachments/assets/4b1f125d-2f97-4e87-8e5b-7c79d721d2fa" />
+ <img width="639" height="693" alt="image" src="https://github.com/user-attachments/assets/837e771b-e05c-4609-b9ef-3691ef86e735" />
 </p>
