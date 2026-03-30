@@ -6,15 +6,15 @@ pfp credits to this delightful homo sapiens
 </p>
 
 <p align="center">
-Call me Gold or Adellion, nicknames highly encouraged!!
-</p>
-  
-<p align="center">
   https://github.com/fordibapple
 </p>
 
 <p align="center">
 ▶︎•၊၊||၊|။||||။‌‌‌‌‌၊|• 4:20
+</p>
+
+<p align="center">
+Call me Gold or Adellion, nicknames highly encouraged!!
 </p>
 
 <p align="center">
