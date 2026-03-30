@@ -6,6 +6,8 @@ pfp credits to this delightful homo sapiens
 </p>
 
 <p align="center">
- <ins>[@fordibapple](https://github.com/fordibapple)</ins>
+ <ins>
+  [@fordibapple](https://github.com/fordibapple)
+ </ins>
 </p>
 
