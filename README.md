@@ -1,3 +1,3 @@
-# I-HATE-CODING-THIS-SHIT-AUAYUGHHH
+# 6THE-Adam-kin9
 
 hi hello uwu
