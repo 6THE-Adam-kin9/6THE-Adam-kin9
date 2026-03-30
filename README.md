@@ -28,3 +28,7 @@ ship dniu flowertunes
 <p align="center">
 I'm not looking for friends, but I might add you if you'll live up to my crazy picky standards.
 </p>
+
+<p align="center">
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/55f80b47-c3c1-4f97-b841-5201b1454761" />
+</p>
