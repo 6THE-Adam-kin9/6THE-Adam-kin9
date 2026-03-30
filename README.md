@@ -16,3 +16,15 @@ pfp credits to this delightful homo sapiens
 <p align="center">
 I have narcissistic personality disorder, iwec
 </p>
+
+<p align="center">
+I don't accept random friend requests
+</p>
+
+<p align="center">
+ship dniu flowertunes
+</p>
+
+<p align="center">
+I'm not looking for friends, but I might add you if you'll live up to my crazy picky standards.
+</p>
