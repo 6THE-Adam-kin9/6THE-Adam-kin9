@@ -6,6 +6,13 @@ pfp credits to this delightful homo sapiens
 </p>
 
 <p align="center">
-  [@fordibapple](https://github.com/fordibapple)
+  https://github.com/fordibapple
 </p>
 
+<p align="center">
+▶︎•၊၊||၊|။||||။‌‌‌‌‌၊|• 4:20
+</p>
+
+<p align="center">
+I have narcissistic personality disorder, iwec
+</p>
