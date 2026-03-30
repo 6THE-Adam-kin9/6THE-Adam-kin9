@@ -26,7 +26,11 @@ ship dniu flowertunes
 </p>
 
 <p align="center">
-I'm not looking for friends, but I might add you if you'll live up to my crazy picky standards.
+I'm not looking for friends, but I might add you if you're interesting.
+</p>
+
+<p align="center">
+I'M AN ARTIST TOO BTW!
 </p>
 
 <p align="center">
